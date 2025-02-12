@@ -2,7 +2,7 @@
 
 
 ## Education
-
+Statistics, MS
 
 
 ### Work Experience
