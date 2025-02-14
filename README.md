@@ -2,7 +2,7 @@
 
 ## Education
 - MSc., Statistics | Montana State University (_May 2025_)
-- BSc., Statistics | Kwame Nkrumah University of Science and Tech (_Sept 2017_)
+- BSc., Statistics | KNUST  (_Sept 2017_)
 
 ## Work Experience
 **Gradtuate Teaching Assistant @ Montana State University (_Aug 2024-Present_)**
